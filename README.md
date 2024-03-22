@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @nafissa21
+- 🌱 I’m currently learning chisel
+- 😄 Pronouns: She/Her
